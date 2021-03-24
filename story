@@ -1,0 +1,1 @@
+Twice upon a time(this happened before) a monkey lived on a banyan tree next to the banks of the Ganges river. Along side the monkey on the opposing side of the banks lived a crocodile and his wife. One day the crocodile found a potato that could talk and made it his friend.
